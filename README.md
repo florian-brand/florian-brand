@@ -7,13 +7,7 @@ idle = sleeping, dni = busy or on dni (check name), looking 4 chat = on tab but 
 <p align="center">
 THE one and only FLORIAN BRAND ON WEBSITE PONTOWN DOT COM!!!!!! the original, the irresistible original~
 <p align="center">
-whisper 2 interact, goes offtab randomly. ALWAYS ON CUDDLES OR HUGS, DONT BE SHY PLEASE!!!!! do not cover
-<p align="center">
-unless youre cuddling me. my wifi is ass,,, im also sometimes a little dumb and freaky, also very PDA w my gf or
-<p align="center">
-friends~ SIGN MY ATABOOK OR DRAW ON MY STRAWPAGE!!! THANK YOUUU!! ill make a strawpage showoff later >3<
-<p align="center">
-more detailed ponytown about me + pt dni on https://rentry.co/florians-pt , do read!!! much apprieciated~~
+whisper 2 interact, goes offtab randomly. ALWAYS ON CUDDLES OR HUGS, DONT BE SHY PLEASE!!!!! do not cover unless youre cuddling me. my wifi is ass,,, im also sometimes a little dumb and freaky, also very PDA w my gf or friends~ SIGN MY ATABOOK OR DRAW ON MY STRAWPAGE!!! THANK YOUUU!! ill make a strawpage showoff later :9 more detailed ponytown about me + pt dni on https://rentry.co/florians-pt, do read!!! much apprieciated~~
   <p align="center">
     <img src="https://64.media.tumblr.com/e9e301b509f4f80141a8a0ccbfdc6493/c66445df1a34b26b-73/s400x600/bc3fcc11a87d878d93f51e87b6346e64ca93c3a1.pnj" />
 <p align="center">
